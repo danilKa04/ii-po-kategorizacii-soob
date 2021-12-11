@@ -1,0 +1,1 @@
+# ii-po-kategorizacii-soob
